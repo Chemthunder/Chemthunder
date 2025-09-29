@@ -9,8 +9,7 @@ I have big dreams of making something people will remember I guess.
 Herald - 1.21.1 <> BCSMP
 A lore weaponry and character mod for Season Seven
 
-Northstar - 1.21.1 <> Memory Lapse
-Flamethrowers, big swords, and Oil!
+A super secret project!
 
 # How to reach out!
 Chemthunderisme@gmail.com
