@@ -7,7 +7,9 @@ I have big dreams of making something people will remember I guess.
 
 ## Current Interests
 Warriors (Aka Warrior Cats)
+
 Writing
+
 Content SMP
 
 # How to reach out!
