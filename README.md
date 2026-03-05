@@ -1,4 +1,8 @@
-# ⭐ Drifting through the cosmos...
-They say tales of yore left untouched by the hands of humanity will wither; they fester. But stories left to fate's cold grasp will always return, and this earth will glimpse what it means to be forgotten, and what it means to return.
+# ⭐ And we carry on~
+We as a society are biologically flawed. Free will is nothing but a construct we employ to justify ruthlessly killing each other. Nothing more.
 
-🌑 🌙 🌓 🌔 🌕
+But even in this darkness, these endless fields of misery of our own design,
+
+We learn to love.
+
+# 🌑 🌙 🌓 🌔 🌕
