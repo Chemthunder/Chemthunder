@@ -7,3 +7,16 @@ We learn to love.
 
 And I think that's pretty beautiful, don't you?
 # 🌑 🌙 🌓 🌔 🌕
+
+### Contacts ~
+##### Discord
+chemthunder
+
+##### BlueSky
+ch3mthunder.bsky.social
+
+##### EMail
+Chemthunderisme@gmail.com
+
+##### Tumblr
+chemthunder
