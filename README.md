@@ -10,13 +10,10 @@ And I think that's pretty beautiful, don't you?
 
 ### Contacts ~
 ##### Discord
-chemthunder
+chemthunder (please only reach out for urgent matters, DMs are closed otherwise.)
 
 ##### BlueSky
 ch3mthunder.bsky.social
-
-##### EMail
-Chemthunderisme@gmail.com
 
 ##### Tumblr
 chemthunder
